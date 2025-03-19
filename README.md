@@ -1,6 +1,3 @@
-
-![Polish_20250101_102507760](https://www.canva.com/design/DAGS0bPYou8/H9X5EaXsVZnw4L0-8UfvBg/view?utm_content=DAGS0bPYou8&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h11708fc97e)
-
   
 🌍 Welcome! I'm Suleman Ahmadzai
 
