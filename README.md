@@ -1,7 +1,4 @@
 
-![Polish_20250101_102507760](https://github.com/user-attachments/assets/cca9f57b-7dd7-4a1e-9b38-f4a5b9ea8134)
-
-  
 🌍 Welcome! I'm Suleman Ahmadzai
 
 I’m a Full Stack Web Developer passionate about building dynamic, scalable, and user-friendly web applications. With expertise in both frontend and backend technologies, I develop solutions that empower businesses and individuals to thrive in the digital space. 🚀
